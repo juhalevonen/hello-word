@@ -1,4 +1,7 @@
 # hello-word
-Test 2021-02-10
+Test 2021 (vuosi riittää)
 
-Banaanit ovat kypsiä ja niitä voi syödä.
+Appelsiinit ovat kypsiä ja niitä voi syödä.
+
+CCR
+Deep Purple
