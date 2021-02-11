@@ -5,5 +5,8 @@ Banaanit ovat kypsiä ja niitä voi syödä.
 
 Ja laittaa pirtelöön. Tiistaisin tulee vielä suklaakuorrustus.
 
+Entäs päärynät?
+
+
 
 
